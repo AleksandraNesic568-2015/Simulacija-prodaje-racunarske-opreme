@@ -1,0 +1,1 @@
+# Simulacija-prodaje-racunarske-opreme
